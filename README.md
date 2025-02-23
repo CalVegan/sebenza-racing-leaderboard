@@ -1,1 +1,0 @@
-# sebenza-racing-leaderboard
